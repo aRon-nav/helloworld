@@ -1,2 +1,2 @@
 # helloworld
-introducing my non-existing data skills but much existing data ambitious to the world 
+the true seeker does not have all answers - he asks the right questions.
